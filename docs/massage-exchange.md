@@ -3,6 +3,8 @@ title: Massage Exchange
 layout: default
 ---
 
+_Last updated: May '26_
+
 Hello :) This is a type of massage exchange I'd be very interested in exploring! 
 
 ## ℹ️Meta
