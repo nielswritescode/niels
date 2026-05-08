@@ -15,7 +15,7 @@ Amount of guests possible:👤(comfortable)👤👤(doable)👤👤👤(an inter
 📅 I'd like to know your (lack of) plans so we can integrate.  
 🌙 I prefer you are home before 23.00.
 👑 You can be a Chief in my home (take my food, use my towels, play your music). I'll express a boundary when needed.  
-📞 Call / SMS reaches me quickest. Whatsapp might take a few hours - 2 days. I can add you to a signal group where I receive notifications quicker if SMS is not available to you. Emails are also welcome.  
+📞 Call / SMS reaches me quickest. Whatsapp might take a few hours - 2 days. I can add you to a signal notification profile where I receive notifications quicker if SMS is not available to you. Emails are also welcome.  
 🧹 I appreciate it if you do some cleaning while you are at mine. Leave it a little cleaner than you found it. I can give you some task or you pick up whatever you see / like to do.  
 🍕 You have a spare key you can borrow which unlocks the front door but not the main gate. Either wait for someone to come or ring a random doorbell. "Pizza!"  
 🛏️ You'll be sleeping on a spare mattress. If you are able to bring your own bedding (sheet, sleeping bag, pillow case) - that is greatly appreciated. Otherwise I will provide.  
