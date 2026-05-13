@@ -7,20 +7,35 @@ parent: Missing Manual
 
 ## Why?
 
-**Why do you want to be a leader?**  
+**Am I a leader?**
 
-The healing that I need does not exist so what other option do I have than attempt to create it? I have to believe in the world to have a shot at happiness. I can actually truly believe in the world if I view it from a radical acceptance POV. 99.9% of everything is traumatized. But if I accept this - I can work and live with the 0.01%.
+What does this term even mean?  
 
-**Am I better than others?**  
-I truly believe I'm not. I just had a big medical trauma which forced me onto the spiritual path and to this day forces me to stay on it. I understand why others wouldn't be on this path without a motivating force. Love is probably a better motivating force. Not saying that it does not play a role in my life - but it hasn't been the primary motivation originally. 
+I've climbed a few mountains. When I look over my shoulder, I see the peaks and I wonder how it looked like for me when I was in the valley. Have I really forgotten?
 
-**Are you better than other people who are leading?**  
-Perhaps leaders who are leading from love are better than me. 
+I've brought my energy and presence into the world on many occasions. I've noticed extraordinary change in my personal relationships, groups and communities I was in. It was often a change of love - felt by not just me but also by the other. At the moment, I am consciously choosing to radiate stronger - and as long as it aligns I will keep on radiating. Does this mean I'm a leader?
 
+I am a frontrunner for unconditional organizing. 
 
-**Do you offer something new that is missing in the world?**
+**What am I bringing into the world?**
 
-Highly trauma informed. A courage to view the world coming from a point of defying social norms that deeply rooted in our existensialism. 
+I think (western bias) that we are all living in a huge trauma. And that most people (understandably) do not accept it. And are therefore living in an illusion. An illusion that creates more trauma and completely disrespects life. 
+
+I offer a perspective of radical acceptance and real authenticity that I believe has at least a small chance of healing the world. Which simultaneously manifests love & happiness (not necessarily for the self).
+
+**Why?**
+
+I was forced onto the spiritual path by significant personal medical trauma. Which forces me to stay on it to this day. 
+
+If I stop believing in the potential for the world to heal there is no reason for me to heal personally. Which means I would not have a reason to want to live. I have given up on the world in the past - which links to my major depressions, to no surprise. I think many in this world have given up in some way or another which is a huge energy flow not often spoken about to its full depth.
+
+**Am I better than others?**
+
+No. I believe quite strongly that I actually don't feel this energy - I'm not sure I would have been on this path had it not been for my medical trauma. I rely on a pain motivator although I am being drawn in by a love motivator - I hardly expect anyone to find the start sign on this world without some intervention. 
+
+**How do I even dare to lead with all the personal trauma that I have?**
+
+I sincerely hope I am not bringing more trauma into the world. If I notice that this is happening my plan is to stop the events and start fully focussing on my personal relationships. Yes I have extreme trauma - but yes, I also have extreme healing insights because of it. With radical acceptance of what I am and what I can do - I believe there's hope. 
 
 ## Feedback
 
