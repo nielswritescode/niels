@@ -4,6 +4,8 @@ layout: default
 parent: Missing Manual
 ---
 
+_A generalization of the current energetic direction I experience around dating. I probably have beliefs that are blocking me, like everyone :) _
+
 ## What I desire
 
 Idealistic community living where everyone has a relationship with everyone (there is no distinction of the romantic) and there is zero taboo on sexuality - instead it is possibly framed as a healing tool / aliveness and the community cares for the sexual needs of all its members.
