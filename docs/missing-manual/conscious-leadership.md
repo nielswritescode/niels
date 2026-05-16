@@ -1,7 +1,7 @@
 ---
 title: Conscious Leadership
 layout: default
-parent: Missing Manual
+parent: Missing Manual (in development)
 ---
 
 

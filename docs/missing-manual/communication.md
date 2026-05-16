@@ -1,7 +1,7 @@
 ---
 title: Communication
 layout: default
-parent: Missing Manual
+parent: Missing Manual (in development)
 ---
 
 For most apps I am not receiving notifications on my phone on purpose.

@@ -1,14 +1,14 @@
 ---
 title: Dating
 layout: default
-parent: Missing Manual
+parent: Missing Manual (in development)
 ---
 
-_A generalization of the current energetic direction I experience around dating. I probably have beliefs that are blocking me, like everyone :) _
+_A generalization of the current energetic direction I experience around dating. I probably have beliefs that are blocking me, like everyone :)_
 
 ## What I desire
 
-Idealistic community living where everyone has a relationship with everyone (there is no distinction of the romantic) and there is zero taboo on sexuality - instead it is possibly framed as a healing tool / aliveness and the community cares for the sexual needs of all its members.
+Idealistic community living where everyone has a relationship with everyone (there is no distinction of the romantic) and there is zero taboo on sexuality - instead it is positively framed as a healing tool / aliveness and the community cares for the sexual needs of all its members.
 
 ## What I desire but not actually want
 
