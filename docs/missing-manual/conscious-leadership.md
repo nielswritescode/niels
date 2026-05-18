@@ -37,6 +37,53 @@ No. I believe quite strongly that I actually don't feel this energy - I'm not su
 
 I sincerely hope I am not bringing more trauma into the world. If I notice that this is happening my plan is to stop the events and start fully focussing on my personal relationships. Yes I have extreme trauma - but yes, I also have extreme healing insights because of it. With radical acceptance of what I am and what I can do - I believe there's hope. 
 
+## Who?
+
+**Who is your modality a good fit for?**  
+
+It's harder to say in my case. This is for 2 reasons:
+
+- I do a form of long-term community building (which you could even call global community building...). I am slowly considering to mix it with the more known form of community building. 
+- I offer a lot of different events.
+
+I think at the basis, I want everyone to be welcome to my events. That is why I have tried things such as promotion on the street (making sure to change location, get other people to join me in promoting, talking to everyone etc.).
+I also don't have enough data yet to really know who fits my modality - also because I'm subject to rapid personal change.
+
+I do have some guesses. People who have at least been exposed to some open-mindedness in their lifes, or are open-minded by nature. Deeply traumatized people. Deeply acceptant and happy people. People who feel rejected by society. People with a foot in the spiritual world. People who like fun (for particular events).
+
+**How do you find out?**
+Mindfully observing the patterns. Hosting more events and getting more data points. 
+
+**Do you obsessively serve everybody?**
+No. I offer what I offer and though I do integrate & offer flexibility (which is also growing nowadays) - there is a large portion of the world I can't currently serve. 
+
+**How do you know if you are making a difference (for attendees)?**
+Feedback. My feelings. Feelings from others that are shared with me, or felt. The difference manifests in many unforeseen ways. 
+
+**Under what circumstances would you ban someone from your community / business? What would the process be, that you can stand behind?**
+I've never had to until now and currently don't see the need to use the resources to answer this question. I think this situation could come up very rarely, but I would deal with it specifically. Meditate on it. Confer with others that I trust. 
+
+## Community relations
+
+**Are you ready to be crucified? To have your mistakes put under a microscope?**
+Currently I still feel like I could be crucified a bit more. Not sure what happens after.  
+
+**Are you ready to be put on a pedestal, only to be destroyed later?**
+I think I'm already okay with being destroyed. 
+**Do you have a conscious plan for dealing with mommy and daddy projections?**
+I'll get to that when it happens...
+
+**Do you have a social life outside of the people you want to lead? Boundaries around dating members? What about bringing existing partners into the practice/community?**
+The social life is merging... Not sure yet. 
+I have gotten a girl's number once by inviting her to my events. And then I gave her a compliment through text which was definetly my 'dating' energy. She never responded... I think I don't exclude it, but I am more careful with it. Usually I make a clear choice for 'dating', 'humble event invite' or 'both', at least for a single interaction / day. 
+
+
+**In general, how aware are you of the challenge of multiple relationships? And what tools will you use to find the best way around that?**
+Generally I have been quite good at multiple relationships with people. I think my disassociation helps (not feeling too much attachment I can easily move a partner role into client role into cofacilitator role...)
+
+
+
+
 ## Feedback
 
 **How do I collect feedback?**
