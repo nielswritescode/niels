@@ -6,17 +6,49 @@ parent: Missing Manual (in development)
 
 _A generalization of the current energetic direction I experience around dating. I probably have beliefs that are blocking me, like everyone :)_
 
+## What I want
+
+I crave the inclusion of more intimacy, sexual exploration & 'romantic' energy in my life. I am partly truly longing for it. Additionally, the longing itself is influenced by a deep wound: the pain & suffering of the unmet need for intimacy for many years.  
+
+I deeply question in-society monogamous romantic relationships. 
+I deeply question it because:
+
+- Simply questioning it brings up many triggers in most people. It seems very hard to have an honest, open-to-not-knowing conversation about it. Which, to me, is already a sign that there must be something deeply wrong about it.
+- My parents stayed together for many years without really loving each other. 
+- I wonder if my grandparents even really loved each other in the first place. 
+- I think there is a relationship between the way we have relationships and the suffering in the world. 
+- The relationship escalator
+
+I question (and applaud the concept of) polyamory.
+
+- It seems to often be about sex in one way or another.
+- How can people have multiple relationships while maintaining a single one seems to be such a challenge already...?
+- Isn't it selfish?
+
+I question dating culture.
+
+- How can we ever heal when we're actively creating masks?
+- Why are apps with a commercial incentive influencing our intimate relationships?
+- Why does alcohol play such a big role in this?
+- I can't even begin to describe how many patterns of suffering the dating energy creates...
+
+I don't have a 100% negative view of these things - there is also good, like with all things. 
+
+I want to be authentic. I want to be present, real & honest. I want to build from that place. I want to be loyal.  
+
+I see myself as having a relationship with everyone. And that relationship can be anywhere on the scale of closeness, intimacy, sexuality etc. No need to put any of these into boxes. But rather explore together & be open to not knowing. I don't have it all figured out - I have a wish to figure things out in relation.
+
+That being said - because not a lot of people share this view - it is incredibly hard for me to fulfill my needs (especially given that I already have a trauma related to this). Therefore it's quite a challenge for me to truly be consistent to what I want. And really have no expectations of others (which includes not having them show up in my subconscious). I will make mistakes and I think I'm currently quite far on the way of really being okay with my mistakes & taking responsibility of them. 
+
+p.s. Relationship anarchy shares many of my ideas - my view is perhaps a more spiritual / less political one.
+
 ## What I desire
 
 Idealistic community living where everyone has a relationship with everyone (there is no distinction of the romantic) and there is zero taboo on sexuality - instead it is positively framed as a healing tool / aliveness and the community cares for the sexual needs of all its members.
 
 ## What I desire but not actually want
 
-Fullfillment of all my sexual fantasies. 
-
-## What I want
-
-To find out what is real together. To challenge all of the social norms - romantic relationships / sexual taboos / mono/polygamy. Loyalty, authenticity, presence, empathy, care. 
+Fullfillment of all my sexual fantasies.  
 
 ## What I'm willing to give in to
 
