@@ -17,6 +17,18 @@ I've brought my energy and presence into the world on many occasions. I've notic
 
 I am a frontrunner for unconditional organizing. 
 
+**Do I think there is actually a need for leadership?**
+
+I'm leaning towards 'Yes'. 
+
+> I attended a donation based yoga class through radar.squat (underground events in Amsterdam) some years ago. At some point we were told to meditate for a few minutes by the teacher in sitting position. I wanted to be in a different position - so I slightly changed the orientation of my legs. I immediately received an instruction from the teacher to sit in the 'correct' position. When I told him I'd rather sit in a different position - he essentially told me I had a choice between leaving the space and doing what he says. I then chose to change my practice from 'yoga' to 'being with unwanted authority' which was a valuable lesson for me. But I never felt like returning to that class. (He also showed outright anger when I asked him if he was fine with a 0EUR donation.) I personally would have wanted less leadership here (at least for the purpose of doing yoga...).
+
+> I attended a masculine/feminine healing workshop at a rainbow gathering in 2024. At some point the men were supposed to sit back to back with the women. A non-binary person then felt triggered by this boxed division. The workshop leaders then allowed a democratic process/discussion to take place on whether it is okay to do this kind of dividing in a workshop. I ended up leaving the workshop after 1 hour of feeling like wasting time / not really getting anywhere. I personally would have wanted more leadership from the workshop leaders here - 'This is how we designed our workshop and if you disagree, we're happy to take feedback afterwards.'
+
+> I like being led sometimes. Being free of having to make decisions is incredibly relaxing at times and frees up space to work on selfgrowth. Quite a lot of people I've met seem to share this.
+
+Perhaps leadership can be fluid. Given presence & reality; you're always on a range which is subject to change.
+
 **What am I bringing into the world?**
 
 I think (western bias) that we are all living in a huge trauma. And that most people (understandably) do not accept it. And are therefore living in an illusion. An illusion that creates more trauma and completely disrespects life. 
