@@ -3,6 +3,7 @@ title: Core Beliefs
 parent: Missing Manual (in development)
 layout: default
 ---
+_Last update: 16th of May 2026_
 
 ## My core beliefs. 
 

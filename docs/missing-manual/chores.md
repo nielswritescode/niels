@@ -3,6 +3,7 @@ title: Chores
 layout: default
 parent: Missing Manual (in development)
 ---
+_Last update: 3rd of June 2026_
 
 ## Cleaning
 

@@ -3,6 +3,7 @@ title: Dissociation?
 layout: default
 parent: Missing Manual (in development)
 ---
+_Last update: 10th of June 2026_
 
 # Vision
 
@@ -35,3 +36,4 @@ Possible causes that I imagine:
 - My panic attacks are often preceded by a wave of nauseau - the same feeling I got after falling on the floor during the creation of the concussion (which might not have been a concussion...). It is like a circulating of the brain which goes 'past' nauseau and then I enter the other dimension. Usually I can still hear in this dimension, although the voices don't make perfect sense. The vision is pitch black and I don't know where my body is. 
 
 - I've had about 8 panic attacks or so. There was also one related to being together with Elina while sleeping.
+

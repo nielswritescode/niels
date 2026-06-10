@@ -3,6 +3,7 @@ title: Dating
 layout: default
 parent: Missing Manual (in development)
 ---
+_Last update: 31st of May 2026_
 
 _A generalization of the current energetic direction I experience around dating. I probably have beliefs that are blocking me, like everyone :)_
 

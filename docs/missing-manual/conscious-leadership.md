@@ -3,6 +3,7 @@ title: Conscious Leadership
 layout: default
 parent: Missing Manual (in development)
 ---
+_Last update: 31st of May 2026_
 
 
 ## Why?

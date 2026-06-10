@@ -3,6 +3,7 @@ title: Communication
 layout: default
 parent: Missing Manual (in development)
 ---
+_Last update: 16th of May 2026_
 
 For most apps I am not receiving notifications on my phone on purpose.
 
