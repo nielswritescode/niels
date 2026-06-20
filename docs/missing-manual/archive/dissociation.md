@@ -1,7 +1,7 @@
 ---
 title: Dissociation?
 layout: default
-parent: Missing Manual (in development)
+parent: Archive
 ---
 _Last update: 10th of June 2026_
 
