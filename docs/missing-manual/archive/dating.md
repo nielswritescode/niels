@@ -1,7 +1,7 @@
 ---
 title: Dating
 layout: default
-parent: Missing Manual (in development)
+parent: Archive
 ---
 _Last update: 31st of May 2026_
 
