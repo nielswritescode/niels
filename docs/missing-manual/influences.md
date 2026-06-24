@@ -12,3 +12,4 @@ Major influences that shape my beliefs & who I am:
 - Thich Nhat Hanh
 - Jon Kabat Zinn
 - A lot of people I've met in my life have been a teacher to me to some degree.
+- Elliott, C. (2020). Existential kink: Unmask Your Shadow and Embrace Your Power (a Method for Getting What You Want by Getting Off on What You Don’t). Weiser Books.
