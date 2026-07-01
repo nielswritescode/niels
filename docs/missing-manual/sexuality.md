@@ -6,7 +6,7 @@ layout: default
 
 I am mostly attracted to women, but my attraction to men has been growing over the years.
 
-I think I'm extremely open minded with my sexuality, but I haven't really been able to let it come it the way it wants to. 
+I think I'm extremely open minded with my sexuality, but I haven't really been able to let it come out it the way it wants to. 
 
 I'm just not really willing to adapt to the societal bullshit around this topic...
 

@@ -3,7 +3,7 @@ title: Needs
 layout: default
 parent: Missing Manual (in development)
 ---
-_Last update: 16th of May 2026_
+_This page was last updated on: 16th of May 2026_
 
 ## Sleep
 
@@ -37,10 +37,6 @@ I need quite a lot, but it's also very dependent on who I'm with.
 ## Creativity
 
 I have a need to express myself creatively and will do it in very creative ways :D
-
-## Sex
-
-I like slow, present sexual practices. I also like to just fulfill the need sometimes. I like to be creative with it. I like authenticity & honesty. My drive is not super high but not low either. 
 
 ## Sovereignty
 

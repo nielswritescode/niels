@@ -3,7 +3,7 @@ title: Dissociation?
 layout: default
 parent: Archive
 ---
-_Last update: 10th of June 2026_
+_This page was last updated on: 10th of June 2026_
 
 # Vision
 

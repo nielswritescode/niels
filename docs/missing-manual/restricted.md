@@ -23,7 +23,7 @@ function rgReveal() {
 }
 </script>
 
-_Last update: 20th of June 2026_
+_This page was last updated on: 20th of June 2026_
 
 There are some MM pages that I wouldn't want to post publicly. Feel free to request them personally - but they do need trust building first :). (I haven't actually written them yet but would love to talk more about these topics)
 

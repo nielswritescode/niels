@@ -3,7 +3,7 @@ title: A Brief Traumatic History Of Niels
 layout: default
 parent: Missing Manual (in development)
 ---
-_Last update: 10th of June 2026_
+_This page was last updated on: 10th of June 2026_
 _There were lots of positive things as well..._
 
 Imagine me at 11. Upper middle class white kid. I was receiving THE unconditional love from mom, more surface level with dad. Very smart. Not socially. I read about 4-5 books per week. 

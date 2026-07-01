@@ -3,7 +3,7 @@ title: Definitions
 layout: default
 parent: Missing Manual (in development)
 ---
-_Last update: 18th of May 2026_
+_This page was last updated on: 18th of May 2026_
 
 My definitions for terms or concepts I often refer to.
 

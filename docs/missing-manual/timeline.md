@@ -3,7 +3,7 @@ title: Traumatic Timeline
 layout: default
 parent: Missing Manual (in development)
 ---
-_Last update: 16th of May 2026_
+_This page was last updated on: 16th of May 2026_
 
 
 

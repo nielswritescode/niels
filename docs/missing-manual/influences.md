@@ -3,7 +3,7 @@ title: Influences
 parent: Missing Manual (in development)
 layout: default
 ---
-_Last update: 16th of May 2026_
+_This page was last updated on: 16th of May 2026_
 
 Major influences that shape my beliefs & who I am:
 

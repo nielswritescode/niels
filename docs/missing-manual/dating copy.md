@@ -3,7 +3,7 @@ title: Dating
 layout: default
 parent: Missing Manual (in development)
 ---
-_Last update: 31st of May 2026_
+_This page was last updated on: 31st of May 2026_
 
 # What do I want?
 
