@@ -13,3 +13,7 @@ Time for the meeting. I took a right at a crossroads. Stopped. And went back to 
 5
 
 A consult in the forest. Or consult from the forest, rather? I spent 2 hours listening. Mostly to my own thoughts, actually. My listening ability feels blocked. Even the tenderest approach has mild effects. Self-acceptance. I can hardly even feel the sadness over a lost dream. The timebomb is ticking. I guess I'll have another Libanese wrap. 
+
+6
+
+I long for intimacy. My heart hurts. My eyesight is getting worse and I don't know how to fix it. I stay optimistic and hopeful, for now. I don't want to waste time, but if I just spent 4 hours on the practice and I'm still not really feeling the call of the universe, what am I supposed to do? There is love here. But it's far from obvious. I keep on making a path with pebbles. It's super inefficient. But every pebble is a serious fucking pebble. I'm kinda proud of it. It's beautiful. 
