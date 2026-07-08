@@ -6,7 +6,7 @@ parent: Missing Manual (in development)
 _This page was last updated on: 10th of June 2026_
 _There were lots of positive things as well..._
 
-Imagine me at 11. Upper middle class white kid. I was receiving THE unconditional love from mom, more surface level with dad. Very smart. Not socially. I read about 4-5 books per week. 
+Imagine me at 11. Upper middle class white kid. I was receiving THE unconditional love from mom, more pragmatic with dad. Very smart. Not socially. I read about 4-5 books per week. 
 
 I lost my innocence at 12 when my friend Ilya introduced me to video games. Pornography ensued.
 
