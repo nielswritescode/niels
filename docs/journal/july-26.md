@@ -17,3 +17,7 @@ A consult in the forest. Or consult from the forest, rather? I spent 2 hours lis
 6
 
 I long for intimacy. My heart hurts. My eyesight is getting worse and I don't know how to fix it. I stay optimistic and hopeful, for now. I don't want to waste time, but if I just spent 4 hours on the practice and I'm still not really feeling the call of the universe, what am I supposed to do? There is love here. But it's far from obvious. I keep on making a path with pebbles. It's super inefficient. But every pebble is a serious fucking pebble. I'm kinda proud of it. It's beautiful. 
+
+9
+
+I feel anxious about diving deeper into the practice because my break ends in 5 minutes. I fear that, if I commit the resources now, I will get less result out of it as opposed to staying ignorant now and commiting later. I guess it's a form of planning my spirituality. Let me feel into the energy of planning my spirituality. I feel some sadness coming up as well as tension in my legs.
