@@ -17,3 +17,7 @@ A consult in the forest. Or consult from the forest, rather? I spent 2 hours lis
 6
 
 I long for intimacy. My heart hurts. My eyesight is getting worse and I don't know how to fix it. I stay optimistic and hopeful, for now. I don't want to waste time, but if I just spent 4 hours on the practice and I'm still not really feeling the call of the universe, what am I supposed to do? There is love here. But it's far from obvious. I keep on making a path with pebbles. It's super inefficient. But every pebble is a serious fucking pebble. I'm kinda proud of it. It's beautiful. 
+
+8
+
+Listening to God. But God barely speaks to me. And endless surrender with negligible emotional relevance. The surrender saves me from suffering, and the pain. Devote my life for a chance at the unfelt? I currently don't see a way how. I might be forced into it at some point. 
