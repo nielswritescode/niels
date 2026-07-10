@@ -21,3 +21,7 @@ I long for intimacy. My heart hurts. My eyesight is getting worse and I don't kn
 8
 
 Listening to God. But God barely speaks to me. And endless surrender with negligible emotional relevance. The surrender saves me from suffering, and the pain. Devote my life for a chance at the unfelt? I currently don't see a way how. I might be forced into it at some point. 
+
+9
+
+I feel anxious about diving deeper into the practice because my break ends in 5 minutes. I fear that, if I commit the resources now, I will get less result out of it as opposed to staying ignorant now and commiting later. I guess it's a form of planning my spirituality. Let me feel into the energy of planning my spirituality. I feel some sadness coming up as well as tension in my legs.
