@@ -29,3 +29,13 @@ I feel anxious about diving deeper into the practice because my break ends in 5 
 10
 
 More and more dogs are becoming my friends. I see them, partially. A woman told me 'dat breng je zo mooi' after I told her I'd prefer to be alone again. Undecisiveness. How do I use my time properly? There's a challenge right now. I don't want to infinitely turn towards the silence. Or if I do it, I want to do it properly. Hmuewhueh. 
+
+15
+
+I made a choice not to go directly to Gaasperplas nude beach to meditate. Instead, I meditated for 30 minutes first, in a busy shopping street. I knew that I would be susceptible to sexual energies at the nude beach. So it made sense to me that grounding first and then going there would benefit me more than trying to ground in a more challenging environment. Doing pleasure yoga whilst naked is harder. I often get drawn into performing energies. I also feel the sexual energies from the people around me. Particularly from the men who are gazing, sometimes behind sunglasses. I enjoy their energies, which is part of the challenge... 
+
+I wanted to talk to a cute guy / man who sat next to me. I'm sexually interested. But actually approaching the guy with that intent is way too overwhelming for my nervous system. So I'd be half-ass approaching him. Which I do not want. Right now, I'm feeling an upcoming fatigue as I'm trying to write this down. This pattern is just SO. Exhausting. 
+
+I guess journalling can be free in the sense that I can journal from the place where I'm at. And I have no expectations for the journalling to be anything in particular. That probably is how I'm going to stay motivated to journal. And how it is going to be fun and transformative. 
+
+I do wish that there weren't so many destructive patterns... that I was a little bit freeer of them... that it was all different.
