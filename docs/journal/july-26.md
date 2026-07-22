@@ -39,3 +39,11 @@ I wanted to talk to a cute guy / man who sat next to me. I'm sexually interested
 I guess journalling can be free in the sense that I can journal from the place where I'm at. And I have no expectations for the journalling to be anything in particular. That probably is how I'm going to stay motivated to journal. And how it is going to be fun and transformative. 
 
 I do wish that there weren't so many destructive patterns... that I was a little bit freeer of them... that it was all different.
+
+16
+
+I guess the absence of a manager / cook allowed us to bond. It felt valuable. I'm getting better at managing my own life. The manager does get tired at times though...
+
+Self-leadership is hard. I definitely don't have access to it most of the time. But knowing it's there still feels empowering.
+
+Choosing to not distract myself is also a choice. To consciously allow myself to be distracted seems more human than to abstinate in a rough manner. Even when that roughness is meta-balanced. To continue in a continuous, integral way. To surrender into both the distraction and the discipline to meditate. 
