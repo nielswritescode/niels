@@ -47,3 +47,7 @@ I guess the absence of a manager / cook allowed us to bond. It felt valuable. I'
 Self-leadership is hard. I definitely don't have access to it most of the time. But knowing it's there still feels empowering.
 
 Choosing to not distract myself is also a choice. To consciously allow myself to be distracted seems more human than to abstinate in a rough manner. Even when that roughness is meta-balanced. To continue in a continuous, integral way. To surrender into both the distraction and the discipline to meditate. 
+
+24 
+
+I have taken more steps on an infinite field of relationship. It's given me the ability to open up a gate in the world of darkness. I have not yet approached this gate, but I know I'll have to eventually. It's scary. But I only feel scared like a child would. "It's scary!!!" with also a smile on my face. 
